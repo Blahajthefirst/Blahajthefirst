@@ -6,4 +6,4 @@
 > -📫 **How to reach me:** ishitsahoo11@gmail.com
 > -😄 **Pronouns:** he/him
 > -⚡ **Fun fact:** I❤️MC :)
-![Bare Bones Steve Wave Sticker](https://tenor.com/view/bare-bones-steve-wave-minecraft-gif-9311852797231273232)
+[Bare Bones Steve Wave Sticker](https://tenor.com/view/bare-bones-steve-wave-minecraft-gif-9311852797231273232)(https://tenor.com/search/bare+bones-stickers)
