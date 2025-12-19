@@ -1,7 +1,7 @@
 ## Hi there 👋
 ---
 ![MiGato:)](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
----
+
 ### **A Little About Me** 😅
 ---
  🔭 **I’m currently working on:** my readme 😭 <br>
